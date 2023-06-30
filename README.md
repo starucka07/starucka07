@@ -1,6 +1,6 @@
 Bem bem vindo ao meu perfil!
 
- Meu nome é Mariana strucka! 
+ Meu nome é Mariana Strucka! 
  
 Tenho 16 anos!  
 
